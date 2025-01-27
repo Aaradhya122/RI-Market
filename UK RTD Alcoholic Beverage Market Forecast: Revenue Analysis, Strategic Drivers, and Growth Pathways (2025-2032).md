@@ -1,4 +1,4 @@
-"# UK RTD Alcoholic Beverage Market Forecast: Revenue Analysis, Strategic Drivers, and Growth Pathways (2025-2032)
+# UK RTD Alcoholic Beverage Market Forecast: Revenue Analysis, Strategic Drivers, and Growth Pathways (2025-2032)
 
 <strong>RTD Alcoholic Beverage Market Snapshot 2025-2032:</strong>
 
